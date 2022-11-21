@@ -1,4 +1,4 @@
-![EnzoMaidana](Degradado Vlog Banner para YouTube.gif)
+![EnzoMaidana](DegradadoVlogBannerparaYouTube.gif)
 
 ### ¡Bienvenidos! 🙌
 
