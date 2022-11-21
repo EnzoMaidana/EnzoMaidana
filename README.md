@@ -1,3 +1,5 @@
+![EnzoMaidana](Degradado Vlog Banner para YouTube.gif)
+
 ### ¡Bienvenidos! 🙌
 
 <h2 width="100%">👨‍ Acerca de mi: </h2>
