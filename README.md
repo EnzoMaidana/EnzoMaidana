@@ -1,4 +1,4 @@
-![EnzoMaidana](DegradadoVlogBannerparaYouTube.gif)
+![EnzoMaidana](bannerGit.gif)
 
 ### ¡Bienvenidos! 🙌
 
